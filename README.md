@@ -1,0 +1,2 @@
+# juandiego.github.io
+curriculum
